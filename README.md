@@ -6,6 +6,7 @@ CAT - 40%
   - 8% for finishing classwork
   - 8% for sumbitting projects
   - 15% for your behavior in the classroom
+    
 
 Last Exam Mark - 10%
 
